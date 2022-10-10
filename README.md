@@ -1,1 +1,0 @@
-# usisuto_making
